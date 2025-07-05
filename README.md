@@ -1,5 +1,7 @@
 my ONLY discord accounts:
 
-iscariots2 / 779377760383533086
+iscariotism / 1070020092752035971
+
+iscariots2 (banned) / 779377760383533086
 
 iscariots (banned) / 1348633633594019840
