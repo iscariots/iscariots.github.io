@@ -2,7 +2,7 @@ my ONLY discord accounts:
 
 rip.iscariots / 926119941021773856
 
-iscariotism / 1070020092752035971
+iscariotism (banned) / 1070020092752035971
 
 iscariots2 (banned) / 779377760383533086
 
