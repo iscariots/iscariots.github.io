@@ -1,1 +1,5 @@
-# iscariots.github.io
+my ONLY discord accounts (username/userid):
+
+iscario_ots / 1412553310044557412
+
+1391893404375453738 / 1391893404375453738 (BACKUP)
