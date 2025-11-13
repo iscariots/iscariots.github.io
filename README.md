@@ -1,11 +1,15 @@
-my ONLY discord accounts (username/userid):
+## my ONLY discord accounts (username/userid):
 
-zcmf / 1412841491923079223
+cwpe / 1437138072016912415
 
 1391893404375453738 / 1391893404375453738 (BACKUP)
+
+### banned/old accounts:
 
 ~~iscario_ots / 1412553310044557412~~
 
 ~~udfh / 1412835387365392395~~
 
 ~~tldy / 1412873866493296682~~
+
+~~zcmf / 1412841491923079223~~
